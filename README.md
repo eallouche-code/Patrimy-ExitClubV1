@@ -1,1 +1,0 @@
-# Patrimy-ExitClubV1
